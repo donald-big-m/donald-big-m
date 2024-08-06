@@ -19,4 +19,6 @@ I aim to support blockchain growth and decentralization, contributing to a trans
 |  |  —— Contacts ——  |  |
 |----------|:-------------:|------:|
 | **𝕏: [@donald_big_m](https://x.com/donald_big_m)** |  **[Website](https://donald-big-m.notion.site/Donald-M-07e4ec2f5c304a47a5e3e3d35aab2212?pvs=4)** | **Discord: [@donald_big_m](https://discord.com/users/960325333318512700)** |
+|  |       |  |
 |  |    **KeyBase: [@donald_m](https://keybase.io/donald_m)**   |  |
+|  |       |  |
